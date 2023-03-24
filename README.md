@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **rajrishi17021709@gmail.com**
 
-- ⚡ Fun fact **I sleep a lot.**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
